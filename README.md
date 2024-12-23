@@ -4,7 +4,7 @@ Booi Casin0 is a vibrant online platform that combines exciting games, enticing 
 বুই Casin0 একটি আকর্ষণীয় অনলাইন প্ল্যাটফর্ম যা উত্তেজনাপূর্ণ গেম, লোভনীয় বোনাস এবং ব্যবহারকারী-বান্ধব ডিজাইনের সাথে একটি চমৎকার গেমিং অভিজ্ঞতা প্রদান করে।
 
 <div align="center">
-<img src="https://example.com/image-link](https://asenquavc.com/wp-content/uploads/2024/02/Casino-App.png" width="600">
+<img src="https://pokerluckmeter.com/wp-content/uploads/2022/09/actual-casino.jpg" width="600">
 </div>
 
 <div align="center">
